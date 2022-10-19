@@ -2,7 +2,7 @@
 
 I hope you will check my proposal carefully.
 
-My name is Jiro and I am from Japan, but I live in California. I am a senior full stack web developer with 10+ years of experience.
+My name is Jiro and I am from Japan. I am a senior full stack web developer with 10+ years of experience.
 
 https://www.linkedin.com/in/jiro-kei-924b84226/
 
