@@ -2,9 +2,7 @@
 
 I hope you will check my proposal carefully.
 
-My name is Jiro and I am from Japan. I am a senior full stack web developer with 10+ years of experience.
-
-https://www.linkedin.com/in/jiro-kei-924b84226/
+I am a senior full stack web developer with 10+ years of experience.
 
 I would like to have a good collaboration with you for the long term. You will get paid extra income every month, but it will never interrupt your main business. 
 
