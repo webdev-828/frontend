@@ -18,7 +18,6 @@ Of course we can collaborate other platform too such as LinkedIn.
 
 If you are interested in, please contact me via Telegram or Skype
 
-Skype: jiro.kei@outlook.com
 Telegram: @webdev0523
 
 Thanks
